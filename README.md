@@ -1,1 +1,1 @@
-# hiperszuper-bermen-informatikapizza-shamburger-sgyrosmegrendeloweboldal
+# hiperszuperubermenoinformatikapizzaeshamburgeresgyrosmegrendeloweboldal
